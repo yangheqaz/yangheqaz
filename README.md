@@ -1,5 +1,6 @@
-### Hi there 👋
-
+### Hi everyone! 👋
+### I'm now a student in ECUST,and on github i want to update some interesting things.
+### Ummm..It will be long before that happens.So forget me.If you need to know me,you'll. 
 <!--
 **yangheqaz/yangheqaz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
